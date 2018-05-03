@@ -1,2 +1,3 @@
 # hello-world
 just another repository
+chris here, relaxing extending my knowlegdge and working on my daily personal improvements. If your reading this then your a true knowledge seeker yoursef, god bless... 
